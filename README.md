@@ -8,7 +8,7 @@
 
  💬 Ask me about **MERN**
 
- 📫 How to reach me **fhyvhh091@gmail.com**
+ 📫 How to reach me **ashifalip091@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
